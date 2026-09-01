@@ -1,0 +1,1 @@
+# MecaMind-industrial-4.0
